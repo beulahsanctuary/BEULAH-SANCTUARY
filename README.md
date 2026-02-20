@@ -23,7 +23,7 @@ Our mission is to lead people into a growing relationship with Jesus Christ and 
 ⛪ Service Information
 
 Sunday Worship Service:
-🕘 Time: [Insert Time]
+🕘 Time: [7am-1pm]
 📍 Location: [mombasa,mishomoroni]
 
 Midweek Service / Bible Study:
